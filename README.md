@@ -1,1 +1,1 @@
-# AboutMe
+My name is Kylie Seyler, I am a freshman at Lehigh University and am planning to major in accounting.
